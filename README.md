@@ -1,1 +1,11 @@
-# my profile
+# This is me
+
+Karen Jewell
+s3790553
+s3790553@studentremit.edu.au
+I am 54 and I currently work for the government for the last 3 years in the medical field. Prior to the I was in the private sector for approximately 18 years in the Electricity/Gas industry. My grandson is autistic and I would love to be able to create a program that helps him communicate with the world as he doesn’t talk very much. His mum is the only one who seems to understand what he wants.
+I was born in Sydney NSW and lived there up until our daughter was 5 years old and my husband got transferred to Cairns QLD. Our son was only 10 weeks old when we did the move. My mum and dad got divorced when I was in year 9 and I didn’t get the chance at the time to finish school. I went to live with my mum as dad wasn’t an option. Money was extremely tight in those days. I started my first job at just before my 15 birthday the job was to bend resistors for circuit boards for heart monitoring systems and pacemakers. I have worked every since then (except when I took time to have my 2 children). The majority of my experience comes from what I have learnt in life. For a long time, I have wanted to make a difference and I believe doing this course will help me to improve my skills, knowledge and open up new opportunities for me. My favourite pastime is checking out old lighthouses. My husband recently brought me a solar light house for my garden.
+Interest in IT
+My interest in IT dates back to when I first started working in the early 80’s. I worked for a computer company where I was making computers, checking their running software and shipping them out to the suppliers. I found I love to tinker with computers and always wanted to create my own program. 
+In mostly all the positions I have had, I have assisted with setting up computers to making sure their workstations were operational and had the correct software. What sparked my interest in doing this course was some changes late last year in my life that made me realise I still have a lot to give and want to learn something new and challenging.  I don’t have a lot of official experience in IT just what I have learnt over the years.
+I came to RMIT via Open University to do this course, I have never done a University course before and this is a mighty challenge in itself. I don’t plan to give up and I have this motto, put one foot in front of the other and keep going, you can’t go wrong. I hope to gain some new skills, a better understanding of the IT industry and how I can improve my future.
