@@ -1,4 +1,4 @@
-# This is me
+# my-profile
 
 Karen Jewell
 s3790553
